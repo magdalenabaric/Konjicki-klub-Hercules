@@ -1,0 +1,1 @@
+# Konjicki-klub-Hercules
